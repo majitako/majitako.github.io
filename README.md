@@ -1,0 +1,1 @@
+# majitako.github.io
